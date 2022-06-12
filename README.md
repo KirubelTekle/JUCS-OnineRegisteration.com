@@ -1,1 +1,1 @@
-# JUCS-OnineRegisteeration.com
+# JUCS-OnineRegisteration.com
